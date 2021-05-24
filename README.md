@@ -2,7 +2,7 @@
 - 👀 I’m interested in hacking
 - 🌱 I’m currently learning the courses
 - 💞️ I’m looking to collaborate on groupes
-- 📫 How to reach me cool
+- 📫 How to reach me WhatsApp sur le +229 97670857
 
 <!---
 Jean97-mah/Jean97-mah is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
